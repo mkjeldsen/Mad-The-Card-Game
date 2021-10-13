@@ -1,1 +1,1 @@
-# Mad---The-Card-Game
+# Mad - The Card Game
